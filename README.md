@@ -1,4 +1,4 @@
-# Aleksandra
+# Aleksandra Ola
 
 I am a graduate of Tourism and Recreation from the University School of Physical Education in Poznań. I have over four years of experience working in a travel tech startup, where at the position of Assistant Manager and an Airline Ticket Agent. Currently, I work as a Senior Support Associate in Operations Team at Sollers Consulting, where I handle the organization of business trips.
 
